@@ -8,7 +8,7 @@
 <li>1840: The first petition for a law granting married women the right to own property was established in 1840.</li>
 <li>1845: Lowell Female Labor Reform Association opened in 1845 as the first major labor union.</li>
 <li>1848: The&nbsp;<a title="Seneca Falls Convention" href="https://en.wikipedia.org/wiki/Seneca_Falls_Convention">Seneca Falls Convention</a>, the first&nbsp;<a title="Women's rights" href="https://en.wikipedia.org/wiki/Women%27s_rights">women's rights</a>&nbsp;convention, is held in Seneca Falls, New York.</li>
-<li>1855: :New York Women's Hospital opened in 1855 as the first hospital solely devoted to ailments affiliated with women.</li>
+<li>1855: New York Women's Hospital opened in 1855 as the first hospital solely devoted to ailments affiliated with women.</li>
 <li>1869: Wyoming is the first territory to give women the right to vote.</li>
 <li>1870:&nbsp;<a class="mw-redirect" title="Louisa Ann Swain" href="https://en.wikipedia.org/wiki/Louisa_Ann_Swain">Louisa Ann Swain</a>&nbsp;is the first woman in the&nbsp;<a title="United States" href="https://en.wikipedia.org/wiki/United_States">United States</a>&nbsp;to vote in a&nbsp;<a class="mw-redirect" title="General election (U.S.)" href="https://en.wikipedia.org/wiki/General_election_(U.S.)">general election</a>. She cast her ballot on September 6, 1870, in&nbsp;<a title="Laramie, Wyoming" href="https://en.wikipedia.org/wiki/Laramie,_Wyoming">Laramie, Wyoming</a>.<sup id="cite_ref-11" class="reference"></sup></li>
 <li>1870: The first all-female jury in America is sworn in March 7, 1870 in Laramie, Wyoming.</li>
